@@ -3,7 +3,6 @@
 airdrop  dexon
 # Bagikan
 # AirDrop
-Bergabunglah di: https://bit.ly/2VlnG7t
-Selesain missi nya di: http://bit.ly/newmissionnn
-
 https://github.com/dexon-foundation/dexon
+complete the mission at : http://bit.ly/newmissionnn
+
